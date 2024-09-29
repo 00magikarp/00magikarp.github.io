@@ -1,0 +1,1 @@
+# 00magikarp.github.io
